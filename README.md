@@ -8,7 +8,7 @@
 
 支持所有智能设备: Windows、MacOS、IOS、Andriod、Linux、路由器等，原生节点流媒體支持:  Netflix、動畫瘋、HBO、Disney+、ChatGPT等。
 
-## 可乐云优惠码1111111
+## 可乐云优惠码11111111
 
 活动名称：限時五折優惠券 
 
